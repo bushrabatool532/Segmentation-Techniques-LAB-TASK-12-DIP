@@ -1,0 +1,1 @@
+# Segmentation-Techniques-LAB-TASK-12-DIP
